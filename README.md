@@ -401,9 +401,9 @@ Software Engineer
 
 Android Developer | Java Developer | AI Enthusiast
 
-GitHub: https://github.com/yourusername
+GitHub: (https://github.com/mohitsingh785)
 
-LinkedIn: https://linkedin.com/in/yourprofile
+LinkedIn: https://www.linkedin.com/in/mohit-singh-37966720b/
 
 ---
 
